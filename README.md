@@ -1,4 +1,4 @@
-[BYI - Before You Interact] I do not roleplay. I do not interact with fandom ships, canon or otherwise. I am open to interactions! 
+[BYI - Before You Interact] I do not roleplay or do ship related interactions. But I'm open to conversation!
 
 [DNI - Do Not Interact]
 Basic dni criteria. Pro/darkshippers, inhumane acts apologists, people who interact with the weird sides of fandoms.
