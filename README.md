@@ -4,4 +4,4 @@
 Basic dni criteria. Pro/darkshippers, inhumane acts apologists
 
 [GENERAL] 
-I am not very active on pt; I mostly just like making skins. Feel free to ask for my discord if you'd like to chat more. My replies might be slow. 
+I am not very active on pt; I mostly just like making skins. Feel free to ask for my discord 
