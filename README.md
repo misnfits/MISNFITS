@@ -1,4 +1,4 @@
-[BYI - Before You Interact] I do not roleplay or do ship related interactions. But I'm open to conversation!
+[BYI - Before You Interact] I do not roleplay. But I'm open to conversation!
 
 [DNI - Do Not Interact]
 Basic dni criteria. Pro/darkshippers, inhumane acts apologists
