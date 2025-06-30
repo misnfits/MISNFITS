@@ -1,6 +1,6 @@
-[BYI - Before You Interact] I tend to go afk/leave randomly. If I am not actively using chat, whisper to interact
+[BYI] I tend to go afk/leave randomly. If I am not actively using chat, whisper to interact
 
-[DNI - Do Not Interact]
+[DNI]
 Basic dni criteria. Pro/darkshippers, inhumane acts apologists, minors on 18+
 
 [GENERAL] 
